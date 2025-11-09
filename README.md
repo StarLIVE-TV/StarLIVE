@@ -1,2 +1,0 @@
-# StarLIVE
-CanlıTV
